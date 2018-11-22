@@ -2,4 +2,4 @@
 learning
 
 
-I am learning tghis shit
+I am learning this shit
